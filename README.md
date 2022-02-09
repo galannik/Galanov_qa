@@ -1,0 +1,1 @@
+# Galanov_qa
